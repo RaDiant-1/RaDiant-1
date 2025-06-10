@@ -15,7 +15,8 @@
 
 - 📫 How to reach me **uchennapeace2003@gmail.com**
 
-- 📄 Know about my experienceshttps://beautiful-meringue-f5fa88.netlify.app/resume.html
+- 📄 Know about my experiences
+https://beautiful-meringue-f5fa88.netlify.app/resume.html
 
 - ⚡ Fun fact **Today is yesterday's Future**
 
